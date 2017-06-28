@@ -1,2 +1,0 @@
-# Connors-SkyTV
-Sky TY
